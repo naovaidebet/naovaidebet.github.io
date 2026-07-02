@@ -9,7 +9,7 @@ draft: false
 No início era só uma antipatia por garotos-propaganda de bets. Depois de um tempo, observando o avanço no número de pessoas afundando em dívidas de jogo, ver o Denilson gritando "deu green" passou a me causar uma raiva de verdade, aquela vontade genuína de dar uma cotovelada no meio do rosto de um cara que já é rico e, mesmo assim, quer encher ainda mais o bolso às custas da desgraça alheia. Coisa leve, sabe, tipo fazer os dentes grudarem no céu da boca do maldito.
 
 Passei a observar mais e a anotar o nome de todo famoso que dá a cara para financiar a desgraça alheia em troca de grana. A lista não tem nenhum objetivo prático, é só para eu não esquecer (nem eu, nem ninguém) quem fez parte do fomento desse câncer no Brasil. Fiquem à vontade para adicionar nomes que eu tenha deixado passar.
-* Ver a publicação completa de u/No-Individual-9379 no Reddit Brasil: [A lista dos garotos propaganda das Bets](https://www.reddit.com/r/brasil/s/MuC9xVbzW8/)
+* Ver a publicação completa no Reddit Brasil: [A lista dos garotos propaganda das Bets](https://www.reddit.com/r/brasil/s/MuC9xVbzW8/)
 
 ## 🌟 Celebridades e Influenciadores
 
