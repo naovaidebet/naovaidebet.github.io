@@ -1,4 +1,4 @@
-baseURL = 'https://seu-usuario.github.io/seu-repositorio/'
+baseURL = 'https://github.com/naovaidebet/naovaidebet.github.io/'
 languageCode = 'pt-br'
-title = 'Meu Site com Hugo'
+title = 'Não vai de bet!'
 theme = [] # Mantemos vazio para usar o layout customizado abaixo
