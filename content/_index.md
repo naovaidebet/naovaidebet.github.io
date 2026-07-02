@@ -1,5 +1,5 @@
 ---
-title: "🚀 Hello World com Hugo!"
+title: "🛸 Não Vai de Bet!"
 date: 2026-07-01
 draft: false
 ---
