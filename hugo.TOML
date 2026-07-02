@@ -1,0 +1,4 @@
+baseURL = 'https://seu-usuario.github.io/seu-repositorio/'
+languageCode = 'pt-br'
+title = 'Meu Site com Hugo'
+theme = [] # Mantemos vazio para usar o layout customizado abaixo
