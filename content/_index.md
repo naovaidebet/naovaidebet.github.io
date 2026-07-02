@@ -43,7 +43,6 @@ Esta sublista agrupa personalidades da TV, influenciadores digitais e músicos q
 * **Hungria Hip Hop** – Rapper | [Pesquisar](https://www.google.com/search?q=Hungria+Hip+Hop+BET)
 * **Igor 3K** – Podcaster | [Pesquisar](https://www.google.com/search?q=Igor+3K+BET)
 * **Ivan Moré** – Jornalista e apresentador. | [Pesquisar](https://www.google.com/search?q=Ivan+Mor%C3%A9+BET)
-* **João Gomes** – Cantor. | [Pesquisar](https://www.google.com/search?q=Jo%C3%A3o+Gomes+BET)
 * **Jojo Todynho** – Cantora e personalidade da mídia. | [Pesquisar](https://www.google.com/search?q=Jojo+Todynho+BET)
 * **Jon Vlogs** – Streamer e investidor. | [Pesquisar](https://www.google.com/search?q=Jon+Vlogs+BET)
 * **Kallby** – Criador de conteúdo e influenciador. | [Pesquisar](https://www.google.com/search?q=Kallby+BET)
