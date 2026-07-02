@@ -131,3 +131,4 @@ Nomes ligados diretamente aos esportes
 * [O que é a CPI das Bets?](https://www.bbc.com/portuguese)
 * [CPI das Bets: o que é, objetivos e quem está sendo investigado](https://www.cnnbrasil.com.br/)
 * [CPI das Bets – Wikipédia, a enciclopédia livre](https://pt.wikipedia.org/wiki/CPI_das_Bets)
+* [Confira a lista de empresas autorizadas pelo Ministério da Fazenda a ofertar apostas de quota fixa em âmbito nacional](https://www.gov.br/fazenda/pt-br/composicao/orgaos/secretaria-de-premios-e-apostas/lista-de-empresas)
