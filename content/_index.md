@@ -18,7 +18,6 @@ Esta sublista agrupa personalidades da TV, influenciadores digitais e músicos q
 * **Adriane Galisteu** – Apresentadora | [Pesquisar](https://www.google.com/search?q=Adriane+Galisteu+BET)
 * **Ana Patricia** – Atleta | [Pesquisar](https://www.google.com/search?q=Ana+Patricia+BET)
 * **Antonio Tabet** – Humorista | [Pesquisar](https://www.google.com/search?q=Antonio+Tabet+BET)
-* **Babauzinho** – Influenciador | [Pesquisar](https://www.google.com/search?q=Babauzinho+BET)
 * **Beatriz Souza** – Judoca | [Pesquisar](https://www.google.com/search?q=Beatriz+Souza+BET)
 * **Beth Faria** – Atriz | [Pesquisar](https://www.google.com/search?q=Beth+Faria+BET)
 * **Beto Jamaica** – Cantor | [Pesquisar](https://www.google.com/search?q=Beto+Jamaica+BET)
