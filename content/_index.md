@@ -15,107 +15,108 @@ Passei a observar mais e a anotar o nome de todo famoso que dá a cara para fina
 
 Esta sublista agrupa personalidades da TV, influenciadores digitais e músicos que buscam *arrastar* multidões e *comunicar* com impacto.
 
-* **Adriane Galisteu** – Apresentadora
-* **Ana Patricia** – Atleta
-* **Antonio Tabet** – Humorista
-* **Babauzinho** – Influenciador 
-* **Beatriz Souza** – Judoca
-* **Beth Faria** – Atriz
-* **Beto Jamaica** – Cantor
-* **Boca de 09** – Streamer
-* **Carlinhos Maia** – Influenciador
-* **Cartolouco** – Jornalista
-* **Cauã Reymond** – Ator
-* **César Menotti** – Sertanejo
-* **Chico Garcia** – Jornalista
-* **Christian Figueiredo** – Youtuber
-* **Daniel Pardim** – Empresário
-* **David Brazil** – Promoter
-* **Deolane Bezerra** – Advogada
-* **Duda Lisboa** – Atleta
-* **Eliezer** – Ex-BBB
-* **Everaldo Marques** – Narrador
-* **Felipe Neto** – Comunicador
-* **Fernando Oliveira Lima (Fernandinho)** – TBD
-* **GKay** – Humorista
-* **Gui Araujo** – Modelo
-* **Gusttavo Lima** – Cantor
-* **Hungria Hip Hop** – Rapper
-* **Igor 3K** – Podcaster
-* **Ivan Moré** – Jornalista e apresentador.
-* **João Gomes** – Cantor.
-* **Jojo Todynho** – Cantora e personalidade da mídia.
-* **Jon Vlogs** – Streamer e investidor.
-* **Kallby** – Criador de conteúdo e influenciador.
-* **Kleber Bambam** – Fisiculturista.
-* **Leonardo** – Cantor sertanejo.
-* **Luciano Huck** – Apresentador e comunicador.
-* **Luiz Bacci** – Jornalista e apresentador.
-* **Marcia Fu** – Ex-atleta (medalhista) e personalidade da mídia.
-* **Marcos Bastos** – Profissional técnico e gestor.
-* **Mauro Beting** – Jornalista e comentarista.
-* **MC Daniel** – Funkeiro e artista.
-* **MC Guimê** – Cantor e compositor.
-* **MC Hariel** – Funkeiro e cantor.
-* **MC IG** – Funkeiro e artista.
-* **MC Kevinho** – Cantor e hitmaker.
-* **MC Ryan SP** – Funkeiro e cantor.
-* **Michel Teló** – Cantor sertanejo e músico.
-* **Mução** – Humorista e radialista.
-* **Murilo Huff** – Compositor e cantor sertanejo.
-* **Nego Di** – Humorista.
-* **Oruam** – Trapper e artista.
-* **Pedro Scooby** – Surfista.
-* **Popó Freitas** – Pugilista.
-* **Ratinho** – Apresentador e empresário.
-* **Rico Melquíades** – Influenciador.
-* **Tierry** – Compositor e cantor.
-* **Tirulipa** – Palhaço e comediante.
-* **Toguro** – Influenciador fitness e criador de conteúdo.
-* **Viih Tube** – Influenciadora.
-* **Virgínia Fonseca** – Empresária e influenciadora.
-* **Viviane Araujo** – Atriz e rainha de bateria.
-* **Wesley Safadão** – Cantor e showman.
-* **Zé Felipe** – Cantor.
+* **Adriane Galisteu** – Apresentadora | [Pesquisar](https://www.google.com/search?q=Adriane+Galisteu+BET)
+* **Ana Patricia** – Atleta | [Pesquisar](https://www.google.com/search?q=Ana+Patricia+BET)
+* **Antonio Tabet** – Humorista | [Pesquisar](https://www.google.com/search?q=Antonio+Tabet+BET)
+* **Babauzinho** – Influenciador | [Pesquisar](https://www.google.com/search?q=Babauzinho+BET)
+* **Beatriz Souza** – Judoca | [Pesquisar](https://www.google.com/search?q=Beatriz+Souza+BET)
+* **Beth Faria** – Atriz | [Pesquisar](https://www.google.com/search?q=Beth+Faria+BET)
+* **Beto Jamaica** – Cantor | [Pesquisar](https://www.google.com/search?q=Beto+Jamaica+BET)
+* **Boca de 09** – Streamer | [Pesquisar](https://www.google.com/search?q=Boca+de+09+BET)
+* **Carlinhos Maia** – Influenciador | [Pesquisar](https://www.google.com/search?q=Carlinhos+Maia+BET)
+* **Cartolouco** – Jornalista | [Pesquisar](https://www.google.com/search?q=Cartolouco+BET)
+* **Cauã Reymond** – Ator | [Pesquisar](https://www.google.com/search?q=Cau%C3%A3+Reymond+BET)
+* **César Menotti** – Sertanejo | [Pesquisar](https://www.google.com/search?q=C%C3%A9sar+Menotti+BET)
+* **Chico Garcia** – Jornalista | [Pesquisar](https://www.google.com/search?q=Chico+Garcia+BET)
+* **Christian Figueiredo** – Youtuber | [Pesquisar](https://www.google.com/search?q=Christian+Figueiredo+BET)
+* **Daniel Pardim** – Empresário | [Pesquisar](https://www.google.com/search?q=Daniel+Pardim+BET)
+* **David Brazil** – Promoter | [Pesquisar](https://www.google.com/search?q=David+Brazil+BET)
+* **Deolane Bezerra** – Advogada | [Pesquisar](https://www.google.com/search?q=Deolane+Bezerra+BET)
+* **Duda Lisboa** – Atleta | [Pesquisar](https://www.google.com/search?q=Duda+Lisboa+BET)
+* **Eliezer** – Ex-BBB | [Pesquisar](https://www.google.com/search?q=Eliezer+BET)
+* **Everaldo Marques** – Narrador | [Pesquisar](https://www.google.com/search?q=Everaldo+Marques+BET)
+* **Felipe Neto** – Comunicador | [Pesquisar](https://www.google.com/search?q=Felipe+Neto+BET)
+* **Fernando Oliveira Lima (Fernandinho)** – TBD | [Pesquisar](https://www.google.com/search?q=Fernando+Oliveira+Lima+Fernandinho+BET)
+* **GKay** – Humorista | [Pesquisar](https://www.google.com/search?q=GKay+BET)
+* **Gui Araujo** – Modelo | [Pesquisar](https://www.google.com/search?q=Gui+Araujo+BET)
+* **Gusttavo Lima** – Cantor | [Pesquisar](https://www.google.com/search?q=Gusttavo+Lima+BET)
+* **Hungria Hip Hop** – Rapper | [Pesquisar](https://www.google.com/search?q=Hungria+Hip+Hop+BET)
+* **Igor 3K** – Podcaster | [Pesquisar](https://www.google.com/search?q=Igor+3K+BET)
+* **Ivan Moré** – Jornalista e apresentador. | [Pesquisar](https://www.google.com/search?q=Ivan+Mor%C3%A9+BET)
+* **João Gomes** – Cantor. | [Pesquisar](https://www.google.com/search?q=Jo%C3%A3o+Gomes+BET)
+* **Jojo Todynho** – Cantora e personalidade da mídia. | [Pesquisar](https://www.google.com/search?q=Jojo+Todynho+BET)
+* **Jon Vlogs** – Streamer e investidor. | [Pesquisar](https://www.google.com/search?q=Jon+Vlogs+BET)
+* **Kallby** – Criador de conteúdo e influenciador. | [Pesquisar](https://www.google.com/search?q=Kallby+BET)
+* **Kleber Bambam** – Fisiculturista. | [Pesquisar](https://www.google.com/search?q=Kleber+Bambam+BET)
+* **Leonardo** – Cantor sertanejo. | [Pesquisar](https://www.google.com/search?q=Leonardo+BET)
+* **Luciano Huck** – Apresentador e comunicador. | [Pesquisar](https://www.google.com/search?q=Luciano+Huck+BET)
+* **Luiz Bacci** – Jornalista e apresentador. | [Pesquisar](https://www.google.com/search?q=Luiz+Bacci+BET)
+* **Marcia Fu** – Ex-atleta (medalhista) e personalidade da mídia. | [Pesquisar](https://www.google.com/search?q=Marcia+Fu+BET)
+* **Marcos Bastos** – Profissional técnico e gestor. | [Pesquisar](https://www.google.com/search?q=Marcos+Bastos+BET)
+* **Mauro Beting** – Jornalista e comentarista. | [Pesquisar](https://www.google.com/search?q=Mauro+Beting+BET)
+* **MC Daniel** – Funkeiro e artista. | [Pesquisar](https://www.google.com/search?q=MC+Daniel+BET)
+* **MC Guimê** – Cantor e compositor. | [Pesquisar](https://www.google.com/search?q=MC+Guim%C3%AA+BET)
+* **MC Hariel** – Funkeiro e cantor. | [Pesquisar](https://www.google.com/search?q=MC+Hariel+BET)
+* **MC IG** – Funkeiro e artista. | [Pesquisar](https://www.google.com/search?q=MC+IG+BET)
+* **MC Kevinho** – Cantor e hitmaker. | [Pesquisar](https://www.google.com/search?q=MC+Kevinho+BET)
+* **MC Ryan SP** – Funkeiro e cantor. | [Pesquisar](https://www.google.com/search?q=MC+Ryan+SP+BET)
+* **Michel Teló** – Cantor sertanejo e músico. | [Pesquisar](https://www.google.com/search?q=Michel+Tel%C3%B3+BET)
+* **Mução** – Humorista e radialista. | [Pesquisar](https://www.google.com/search?q=Mu%C3%A7%C3%A3o+BET)
+* **Murilo Huff** – Compositor e cantor sertanejo. | [Pesquisar](https://www.google.com/search?q=Murilo+Huff+BET)
+* **Nego Di** – Humorista. | [Pesquisar](https://www.google.com/search?q=Nego+Di+BET)
+* **Oruam** – Trapper e artista. | [Pesquisar](https://www.google.com/search?q=Oruam+BET)
+* **Pedro Scooby** – Surfista. | [Pesquisar](https://www.google.com/search?q=Pedro+Scooby+BET)
+* **Popó Freitas** – Pugilista. | [Pesquisar](https://www.google.com/search?q=Pop%C3%B3+Freitas+BET)
+* **Ratinho** – Apresentador e empresário. | [Pesquisar](https://www.google.com/search?q=Ratinho+BET)
+* **Rico Melquíades** – Influenciador. | [Pesquisar](https://www.google.com/search?q=Rico+Melqu%C3%A3des+BET)
+* **Tierry** – Compositor e cantor. | [Pesquisar](https://www.google.com/search?q=Tierry+BET)
+* **Tirulipa** – Palhaço e comediante. | [Pesquisar](https://www.google.com/search?q=Tirulipa+BET)
+* **Toguro** – Influenciador fitness e criador de conteúdo. | [Pesquisar](https://www.google.com/search?q=Toguro+BET)
+* **Viih Tube** – Influenciadora. | [Pesquisar](https://www.google.com/search?q=Viih+Tube+BET)
+* **Virgínia Fonseca** – Empresária e influenciadora. | [Pesquisar](https://www.google.com/search?q=Virg%C3%ADnia+Fonseca+BET)
+* **Viviane Araujo** – Atriz e rainha de bateria. | [Pesquisar](https://www.google.com/search?q=Viviane+Araujo+BET)
+* **Wesley Safadão** – Cantor e showman. | [Pesquisar](https://www.google.com/search?q=Wesley+Safad%C3%A3o+BET)
+* **Zé Felipe** – Cantor. | [Pesquisar](https://www.google.com/search?q=Z%C3%A9+Felipe+BET)
+
 ---
 
 ## ⚽ Universo do Futebol e Esportes
 
 Nomes ligados diretamente aos esportes
 
-* **Ademir da Guia** – Jogador de Futebol.
-* **Alecsandro** – Jogador de Futebol.
-* **Bebeto** – Jogador de Futebol.
-* **Cafú** – Jogador de Futebol.
-* **Cuca** – Treinador de Futebol.
-* **D'Alessandro** – Jogador de Futebol.
-* **Denilson** – Jogador de Futebol.
-* **Djalminha** – Jogador de Futebol.
-* **Emerson Sheik** – Jogador de Futebol.
-* **Fabiano** – Jogador de Futebol.
-* **Fred** – Jogador de Futebol.
-* **Fred Bruno** – Youtuber e influenciador esportivo.
-* **Galvão Bueno** – Narrador.
-* **Gabriel Medina** – Surfista.
-* **Grafite** – Jogador de Futebol.
-* **Hernanes** – Jogador de Futebol.
-* **Jairzinho** – Jogador de Futebol.
-* **Júlio Cesar** – Jogador de Futebol.
-* **Lucas Tylty** – investidor esportivo.
-* **Lugano** – Jogador de Futebol.
-* **Luizão** – Jogador de Futebol.
-* **Marcelinho Carioca** – Jogador de Futebol.
-* **Matheus Cunha** – Jogador de Futebol.
-* **Minotauro** – Lutador.
-* **Neymar Jr.** – Jogador de Futebol.
-* **Renato Gaúcho** – Técnico de Futebol.
-* **Ronaldo Giovanelli** – Jogador de Futebol.
-* **Sávio** – Jogador de Futebol.
-* **Túlio Maravilha** – Jogador de Futebol.
-* **Vampeta** – Jogador de Futebol.
-* **Vini Jr** – Jogador de Futebol.
-* **Zico** – Jogador de Futebol.
-* **Zinho** – Jogador de Futebol.
+* **Ademir da Guia** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Ademir+da+Guia+BET)
+* **Alecsandro** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Alecsandro+BET)
+* **Bebeto** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Bebeto+BET)
+* **Cafú** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Caf%C3%BA+BET)
+* **Cuca** – Treinador de Futebol. | [Pesquisar](https://www.google.com/search?q=Cuca+BET)
+* **D'Alessandro** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=D%27Alessandro+BET)
+* **Denilson** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Denilson+BET)
+* **Djalminha** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Djalminha+BET)
+* **Emerson Sheik** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Emerson+Sheik+BET)
+* **Fabiano** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Fabiano+BET)
+* **Fred** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Fred+BET)
+* **Fred Bruno** – Youtuber e influenciador esportivo. | [Pesquisar](https://www.google.com/search?q=Fred+Bruno+BET)
+* **Galvão Bueno** – Narrador. | [Pesquisar](https://www.google.com/search?q=Galv%C3%A3o+Bueno+BET)
+* **Gabriel Medina** – Surfista. | [Pesquisar](https://www.google.com/search?q=Gabriel+Medina+BET)
+* **Grafite** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Grafite+BET)
+* **Hernanes** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Hernanes+BET)
+* **Jairzinho** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Jairzinho+BET)
+* **Júlio Cesar** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=J%C3%BAlio+Cesar+BET)
+* **Lucas Tylty** – investidor esportivo. | [Pesquisar](https://www.google.com/search?q=Lucas+Tylty+BET)
+* **Lugano** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Lugano+BET)
+* **Luizão** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Luiz%C3%A3o+BET)
+* **Marcelinho Carioca** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Marcelinho+Carioca+BET)
+* **Matheus Cunha** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Matheus+Cunha+BET)
+* **Minotauro** – Lutador. | [Pesquisar](https://www.google.com/search?q=Minotauro+BET)
+* **Neymar Jr.** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Neymar+Jr.+BET)
+* **Renato Gaúcho** – Técnico de Futebol. | [Pesquisar](https://www.google.com/search?q=Renato+Ga%C3%BAcho+BET)
+* **Ronaldo Giovanelli** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Ronaldo+Giovanelli+BET)
+* **Sávio** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=S%C3%A1vio+BET)
+* **Túlio Maravilha** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=T%C3%BAlio+Maravilha+BET)
+* **Vampeta** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Vampeta+BET)
+* **Vini Jr** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Vini+Jr+BET)
+* **Zico** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Zico+BET)
+* **Zinho** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Zinho+BET)
 
 ---
 
