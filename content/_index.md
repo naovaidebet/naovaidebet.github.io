@@ -90,7 +90,6 @@ Esta sublista agrupa personalidades da TV, influenciadores digitais e músicos q
 * **Toguro** – Influenciador fitness e criador de conteúdo. | [Pesquisar](https://www.google.com/search?q=Toguro+BET)
 * **Viih Tube** – Influenciadora. | [Pesquisar](https://www.google.com/search?q=Viih+Tube+BET)
 * **Virgínia Fonseca** – Empresária e influenciadora. | [Pesquisar](https://www.google.com/search?q=Virg%C3%ADnia+Fonseca+BET)
-* **Viviane Araujo** – Atriz e rainha de bateria. | [Pesquisar](https://www.google.com/search?q=Viviane+Araujo+BET)
 * **Wesley Safadão** – Cantor e showman. | [Pesquisar](https://www.google.com/search?q=Wesley+Safad%C3%A3o+BET)
 * **Zé Felipe** – Cantor. | [Pesquisar](https://www.google.com/search?q=Z%C3%A9+Felipe+BET)
 
@@ -131,6 +130,7 @@ Nomes ligados diretamente aos esportes
 * **Túlio Maravilha** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=T%C3%BAlio+Maravilha+BET)
 * **Vampeta** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Vampeta+BET)
 * **Vini Jr** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Vini+Jr+BET)
+* **Viviane Araujo** – Lutadora. | [Pesquisar](https://www.google.com/search?q=Viviane+Araujo+BET)
 * **Zico** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Zico+BET)
 * **Zinho** – Jogador de Futebol. | [Pesquisar](https://www.google.com/search?q=Zinho+BET)
 
