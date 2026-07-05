@@ -6,10 +6,26 @@ draft: false
 
 # 🛸 Não Vai de Bet!
 
-No início era só uma antipatia por garotos-propaganda de bets. Depois de um tempo, observando o avanço no número de pessoas afundando em dívidas de jogo, ver o Denilson gritando "deu green" passou a me causar uma raiva de verdade, aquela vontade genuína de dar uma cotovelada no meio do rosto de um cara que já é rico e, mesmo assim, quer encher ainda mais o bolso às custas da desgraça alheia. Coisa leve, sabe, tipo fazer os dentes grudarem no céu da boca do maldito.
+"No início era só uma antipatia por garotos-propaganda de bets. Depois de um tempo, observando o avanço no número de pessoas afundando em dívidas de jogo, ver o Denilson gritando "deu green" passou a me causar uma raiva de verdade, aquela vontade genuína de dar uma cotovelada no meio do rosto de um cara que já é rico e, mesmo assim, quer encher ainda mais o bolso às custas da desgraça alheia. Coisa leve, sabe, tipo fazer os dentes grudarem no céu da boca do maldito.
 
-Passei a observar mais e a anotar o nome de todo famoso que dá a cara para financiar a desgraça alheia em troca de grana. A lista não tem nenhum objetivo prático, é só para eu não esquecer (nem eu, nem ninguém) quem fez parte do fomento desse câncer no Brasil. Fiquem à vontade para adicionar nomes que eu tenha deixado passar.
+Passei a observar mais e a anotar o nome de todo famoso que dá a cara para financiar a desgraça alheia em troca de grana. A lista não tem nenhum objetivo prático, é só para eu não esquecer (nem eu, nem ninguém) quem fez parte do fomento desse câncer no Brasil. Fiquem à vontade para adicionar nomes que eu tenha deixado passar".
 * Ver a publicação completa no Reddit Brasil: [A lista dos garotos propaganda das Bets](https://www.reddit.com/r/brasil/s/MuC9xVbzW8/)
+
+"Meu neto perdeu tudo que a gente tinha com jogos de aposta online. Começou a jogar por incentivo de outras pessoas e começou a perder. Perdeu o carro, o dinheiro que eu tinha no banco, por fim deu golpe na empresa que trabalhava de R$ 200 mil. Minha casa valia mais de R$ 300 mil e vendi, entreguei pelo débito. Nós perdemos tudo que tínhamos", disse a mulher que preferiu não ter a identidade revelada. 
+* Ver a publicação completa no site: [Mulher diz que família perdeu mais de R$ 400 mil em 'jogo do tigrinho' em Maceió: 'Não sei como vou continuar a viver'
+](https://g1.globo.com/al/alagoas/arquivo/noticia/2024/06/17/mulher-diz-que-familia-perdeu-mais-de-r-400-mil-em-jogo-do-tigrinho-em-maceio-nao-sei-como-vou-continuar-a-viver.ghtml)
+
+"Eu perdi todo o dinheiro da formatura. Me viciei em apostas on-line, Tigrinho e afins, e quando perdi todo o dinheiro que eu tinha guardado, comecei a usar o da formatura para tentar recuperar. E aí, cada vez mais fui me afundando no jogo", disse
+* Ver a publicação completa no site: [Aluna avisou colegas que havia perdido todo o dinheiro da formatura com Jogo do Tigrinho a menos de 1 mês da festa
+](https://g1.globo.com/sc/santa-catarina/noticia/2025/02/27/aluna-perde-dinheiro-arrecadado-formatura-jogo-tigrinho.ghtml)
+
+“Constatamos que esse tipo jogo, além do prejuízo financeiro, que é enorme, também mexe com a questão psicológica. Há casos de pessoas que se mataram, são quatro em São Paulo, porque a pessoa apostou tudo o que tinha e perdeu”, afirma o delegado do Deic.
+* Ver a publicação completa no site: [De casa vendida a suicídio: como o Jogo do Tigrinho destrói famílias
+](https://www.metropoles.com/sao-paulo/suicidio-jogo-do-tigrinho-familias)
+
+“Como eu não conseguia esperar um, dois dias para saber o resultado de um jogo de futebol, por exemplo, eu me trancava no banheiro de casa e apostava em partidas rápidas, como pingue-pongue, que se desenrolavam em poucos minutos”, conta o rapaz, que obteve ajuda da mãe para quitar as dívidas com um agiota que bateu à sua porta. “Foi minha salvação, mas houve a condição de que eu deveria buscar ajuda e foi o que fizemos. Eu devia 80 000 reais no total e ainda levará alguns anos para eu me livrar de tudo isso.”
+* Ver a publicação completa no site: [As histórias de pessoas que perderam tudo em apostas on-line e lutam para retomar a vida]([https://www.metropoles.com/sao-paulo/suicidio-jogo-do-tigrinho-familias](https://vejasp.abril.com.br/cidades/as-historias-de-pessoas-que-perderam-tudo-em-apostas-on-line-e-lutam-para-retomar-a-vida/#google_vignette))
+
 
 ## 🌟 Celebridades e Influenciadores
 
